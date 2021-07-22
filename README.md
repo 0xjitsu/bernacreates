@@ -1,4 +1,5 @@
-### 👋Welcome to my side of the Universe!✨
+#### 👋Welcome to my side of the Universe!✨
+=====
 
 📫 DMs open!: 🐦 https://twitter.com/bernacreates
 
@@ -16,7 +17,7 @@ And now, fully transitioning to becoming a Metaverse Native. 🚀🌕🌌
 
 =====
 
-👇 ## **Quick things about me** 👇
+👇 ### Quick things about me 👇
 
 - 🌱 I’m currently learning everything about the Metaverse! Web 2.5 and Web 3.0 things! 
 - 👯 I’m looking to collaborate on AI x Crypto x NFTs and Communities!
@@ -25,7 +26,9 @@ And now, fully transitioning to becoming a Metaverse Native. 🚀🌕🌌
 - ⚡ **Fun fact**: I can love everything tomatoes!🍝
 
 =====
+
 Sustainability Advocate🌊 🌏
 Tech Enthusiast 🛰️ | Futurist 🚀 | 🤖 AI x Arts & Music 🎨🎼
 Blockchain⛓ Crypto 💠🙌 | NFT🎨| Web 3.0 and Metaverses 🌌
+
 =====
