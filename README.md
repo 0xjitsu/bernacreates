@@ -23,7 +23,7 @@ And now, fully transitioning to becoming a Metaverse Native. 🚀🌕🌌
 - 👯 I’m looking to collaborate on AI x Crypto x NFTs and Communities!
 - 🤔 I’m looking for help with UI/UX, Data Ops, and Machine Learning Engineering
 - 💬 Ask me about Artificial Intelligence, Data Science, Data Strategy, Data-Driven Design, Computational Design, Data-Driven Product Management
-- ⚡ **Fun fact**: I can love everything tomatoes!🍝
+- ⚡ **Fun fact**: I can love everything tomatoes! 🍝
 
 =====
 
