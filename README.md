@@ -1,7 +1,7 @@
 #### 👋Welcome to my side of the Universe!✨
 =====
 
-📫 DMs open!: 🐦 https://twitter.com/bernacreates
+📫 DMs open!: 🐦 https://twitter.com/0xjitsu
 
 I'm currently doing something fun!✨🤯🦄
 Building communities and scaling impact. 🚀🌌
